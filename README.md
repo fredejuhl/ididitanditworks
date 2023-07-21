@@ -1,2 +1,2 @@
 # ididitanditworks
-idititanditworks.com/i/
+idititanditworks.com/r/
